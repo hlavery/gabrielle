@@ -1,5 +1,5 @@
 ---
-title: "About Aunt Jule (Julia Haley McCan27)"
+title: "About Aunt Jule (Julia Haley McCann)"
 date: 2021-06-05T19:27:55Z
 draft: false
 weight: 3
