@@ -16,7 +16,7 @@ After the death of her husband, Arthur McCann (1861-1919) at the age of 58, Juli
 | ![Julia Portrait](JuliaHaleyMcCann.jpg?height=300px) | ![Arthur Mccann](ArthurMcCannSrJr.jpg?height=300px) |
 
 
-Gabrielle Haley seems to have been a favorite niece. Gabrielle's sons became favorite grand-nephews, gave the matriarch much attention and help, and were well rewarded in her will.
+Gabrielle Heffron Lavery seems to have been a favorite niece. Gabrielle's sons became favorite grand-nephews, gave the matriarch much attention and help, and were well rewarded in her will.
 
 | *McCann family in old car* | *McCann son in old car* | *McCann family in old car in town*      |
 | :---: | :---: | :---: |
