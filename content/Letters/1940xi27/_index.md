@@ -2,7 +2,8 @@
 title: "1940 November 27"
 date: 2021-26-08T19:27:55Z
 draft: false
-weight: 22
+weight: 23
+
 ---
 | Scan of Letter, *click to view original* | Transcription and *in-line Editorial Notes* |
 | :---: | :--- |
