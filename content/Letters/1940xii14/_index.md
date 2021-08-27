@@ -1,8 +1,8 @@
 ---
-title: "Sample-Do Not Edit!"
-date: 2021-25-08T19:27:55Z
+title: "1940 December 14"
+date: 2021-27-08T19:27:55Z
 draft: false
-weight: 99
+weight: 25
 ---
 | Scan of Letter, *click to view original* | Transcription and *in-line Editorial Notes* |
 | :---: | :--- |
