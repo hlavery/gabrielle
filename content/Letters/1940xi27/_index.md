@@ -12,4 +12,5 @@ weight: 22
 | ![](img220.jpg?height=700px) | Jack *(no idea...ed)* was here this morning no talk about school all football he is much thinner.  Well dear hope you have a pleasant Thanksgiving and the rest of the scholl will be good.  Love, Mother |
 
 "Charlotte Heights", probably Phil's joke name for the half-duplex at 10 1/2 Charlotte Street where the Laverys lived at the time, as it appears in 2021.
-| ![](IMG_0144.jpg?height=700px) |
+
+| ![](IMG_0144.jpg?height=500px) |
