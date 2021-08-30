@@ -12,4 +12,4 @@ weight: 29
 | ![](img249.jpg?height=700px) | Income taxes are all signed so every thing is O.K.  Try and keep well if you feel sick see a Dr.  Love from all,  Mother |
 
 [^1]: a "stagger crew" would allow the rotating shift work to have some days off.
-[^2]: Mr. Middleton is the landlord, as far as I can tell.  He may stil be trying to make good on the "smoked out of the house" episode a few letters back.
+[^2]: Mr. Middleton is the landlord, as far as I can tell.  He may still be trying to make good on the "smoked out of the house" episode a few letters back.
