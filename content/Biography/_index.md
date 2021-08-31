@@ -22,10 +22,13 @@ On June 25, 1913, Gabrielle Heffron married Hugh S Lavery (1996-1935), an attorn
 The Lavery family lived with Hugh S. Lavery's father, Samuel Lavery (1850-1928), in his house on
 upper Glen Street, Queensbury NY.  My father's autobiography mentions a "high curb" in the area, and there are still several large houses there beyond such a  curb, but I am not sure which is which. Samuel was the widower of Bridget Falvey (1856-1911).  She was not alive at the time of my father's birth.
 
+| Samuel Lavery | Bridget Falvey Lavery  | Hugh S. Lavery, their son |
+| :---: | :---: | :---: |
+| ![](SamuelLavery.jpg?height=300px) | ![](BridgetOval.jpg?height=300px) | ![](HughSOval.jpg?height=300px) |
 
-| ![Portrait Samuel Lavery](SamuelLavery.jpg?height=300px) | ![sl house](IMG_0122.JPG?height=300px)
+| ![H S Lavery](HughSLaveryHorse.jpg?height=300px) | ![sl house](IMG_0122.JPG?height=300px)
 |:---:| :---: |
-|*Samuel Lavery, circa 1910*| *Samuel Lavery's house, circa 1909, after a big snow* |
+|*Hugh S Lavery at home with horse, circa 1910*| *Samuel Lavery's house, circa 1909, after a big snow* |
 
 Samuel Lavery had inherited a large farm from his paternal uncle, Hugh Lavery (1811-1884), who was married but died without heirs, by way of his (Samuel's) father John's estate (1820-1885). "Uncle" Hugh and his brother John were from Magheralin, County Down, Ireland and fled the infamous potato famine, together with their mother, in 1836-1837. Their father, John, had died in the Great Hunger.  "Uncle" Hugh had a skilled trade (as a wagon and carriage maker) and invested his spare cash in land and buildings.
 
