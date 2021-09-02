@@ -1,7 +1,7 @@
 ---
 title: "Sample-Do Not Edit!"
 date: 2021-25-08T19:27:55Z
-draft: false
+draft: true
 weight: 99
 ---
 | Scan of Letter, *click to view original* | Transcription and *in-line Editorial Notes* |
