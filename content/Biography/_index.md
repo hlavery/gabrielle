@@ -24,7 +24,7 @@ upper Glen Street, Queensbury NY.  My father's autobiography mentions a "high cu
 
 | Samuel Lavery | Bridget Falvey Lavery  | Hugh S. Lavery, their son |
 | :---: | :---: | :---: |
-| ![](SamuelLavery.jpg?height=300px) | ![](BridgetOval.jpg?height=300px) | ![](HughSOval.jpg?height=300px) |
+| ![](SamuelOval.jpg?height=300px) | ![](BridgetOval.jpg?height=300px) | ![](HughSOval.jpg?height=300px) |
 
 | ![H S Lavery](HughSLaveryHorse.jpg?height=300px) | ![sl house](IMG_0122.JPG?height=300px)
 |:---:| :---: |
