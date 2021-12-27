@@ -13,7 +13,7 @@ John Heffron co-owned a shirt factory in Glens Falls, and Gabrielle Heffron atte
 | ![Gabrielle Portrait](GabrielleHeffron.jpg?height=300px) | ![Heffron House](IMG_0143.jpg?height=300px) |
 
 
-On June 25, 1913, Gabrielle Heffron married Hugh S Lavery (1996-1935), an attorney (Cornell Law 1910) whose practice seems to have been "Family Law" (separations, divorces, and the like)
+On June 25, 1913, Gabrielle Heffron married Hugh S Lavery (1896-1935), an attorney (Cornell Law 1910) whose practice seems to have been "Family Law" (separations, divorces, and the like)
 
 | ![portrait HHL](HughSLavery.jpg?height=300px) |
 |:---:|
